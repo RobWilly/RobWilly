@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Robert Lemke. I have been researching better ways to deliver information. Programming is by definition, so laborious, clumsy and secular. To reach a 'base rock'; there had to be a better way. 
